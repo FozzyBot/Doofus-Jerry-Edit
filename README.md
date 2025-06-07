@@ -1,1 +1,0 @@
-# Doofus-Jerry-Edit
